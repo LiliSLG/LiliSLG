@@ -6,3 +6,6 @@ Durante este tiempo colaboré, y sigo haciéndolo, en el emprendimiento ganadero
 
 Ahora, mientras me embarco en mi viaje de regreso a la programación, estoy feliz de tener la oportunidad que me brinda SoyHenry 💛 para reavivar mi pasión. La capacitación que estoy recibiendo me permite fusionar mis experiencias previas con nuevos conocimientos para aplicar en futuros proyectos.
 ¡Estoy emocionada de asumir este nuevo desafío en mi vida! ✨
+
+
+✉️ Email de contacto: silvialilianagarcia.slg@gmail.com
